@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working on **Startup**
 
-- 📄 RESUME [https://drive.google.com/file/d/1JoB4ZuvrAJBSK0n9slfyxuZdmQ9YyHzv/view?usp=drive_link](https://drive.google.com/file/d/1JoB4ZuvrAJBSK0n9slfyxuZdmQ9YyHzv/view?usp=drive_link)
+- 📄 RESUME- https://drive.google.com/file/d/111OmSeRHIKoM6eJic0KEvyW33peXvOya/view?usp=drive_link
 
 - ⚡ Fun fact **I think I am a person which creates a Good Smile on everyone face.**
 
